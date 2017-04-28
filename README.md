@@ -1,23 +1,17 @@
 <table>
-  <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E7%8B%AC%E5%AE%B6.jpg" /></td>
-  </tr>
   <tr> 
   <td align=center><a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=Email-shn"><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E9%AB%98%E6%B8%85.jpg" /></a></td>
     </tr>
   <tr> 
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B4.JPG" /></td>
+      <td align=center><a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=Email-shn"><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B4.JPG" /></a></td>
    </tr>
   <tr>
-   <td align=center>❤❤❤唤醒良知，震撼心灵！❤❤❤<br/>
+   <td align=center>❤❤❤ 唤醒良知，震撼心灵！❤❤❤<br/>
   </tr>
   <tr>
       <td align=center>◆活摘十年调查◆2017获多项国际大奖<br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=Email-shn">请点击在线观看</a><br/>
     </tr>
-  <tr>
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
-   </tr>
   <tr>
   <td align=left>
 ◆2017获好莱坞最佳导演奖、优秀外语纪录片奖。<br/>
