@@ -24,9 +24,6 @@
 ——器官移植，一个最重要道德前提就是自愿捐献，但中国的器官移植在起步就违反了这个底线，从死刑犯身上强摘器官<br/>
 ——1999年，江泽民迫害法轮功后，为达到消灭法轮功的目的，下令可以摘取法轮学员器官。于是这种活摘行为从死刑犯延伸到了良心犯、政治犯和法轮功学员。与此同时，从2000年起，中国的器官移植业呈现出爆炸性的几倍、几十倍的增长<br/>
    </tr>
-  <tr>
-  <td align=center>▼▼▼更多同系列精彩影片▼▼▼<br/>
-   </tr>
    <tr>
 <td align=center><a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=Email-shn"><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E9%93%81%E8%AF%81%E5%A6%82%E5%B1%B1.jpg" /></a></td>
   </tr>
@@ -34,79 +31,5 @@
 <td align=center>◆铁证如山◆头号史案：超越纳粹<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=Email-shn">请点击在线观看</a> <br/>
    </tr>
-  <tr>
-  <td align=center>◆专家讲座◆中共活摘器官 国家犯罪罪证 <br/> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=Email-shn">请点击在线观看</a><br/>
-   </tr>
-   <tr>
- <td align=center><a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=Email-shn"><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%943.png" /></a></td>
-   </tr>
-  <tr>
-<td align=center>
-◆大卫战红魔◆国际获奖，全球反响巨大<br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=Email-shn">请点击在线观看</a><br/>
-  </tr>
-   <tr>
-      <td align=center><a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c817056&from=Email-shn"><img src="https://raw.githubusercontent.com/wnel2017/ku/master/shan3.jpg" /></a></td>
-   </tr>
-   <tr>
-<td align=center>◆致我们心中的善◆平和中的震撼 <br/> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c817056&from=Email-shn">请点击在线观看</a><br/>
-   </tr>
-  <tr>
-        <td align=center>◆这种反人类罪恶至今还在中国继续◆<br/>
-     </tr>
-  <tr> 
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
-  </tr>
-  <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%983.jpg" /></td>
-  </tr>
-  <tr>
-<td align=center>◆残忍超越纳粹 引发全球关注◆<br/>
-   </tr>
-  <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%982.jpg" /></td>
-   </tr>
-  <tr>
-<tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
-  </tr>
-  <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
-  </tr>
-  <tr>
-<td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
-推荐谷歌、火狐浏览器，国产浏览器易干扰<br/>
-       </td>
-  </tr>
-  <tr>
-<td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
-推荐谷歌或火狐浏览器<br/>
-国产浏览器会干扰访问<br/>
-    </td>
-  </tr>
-  <tr>
-    <td align=center>
-如打开慢，缓冲稍等或刷新<br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=Email-shn">大陆请点击进入动态网址</a><br/>
-    </td>
-  </tr>
-  <tr>
-      <td align=center>2017网民翻墙最人气软件<br/>
-安卓版 <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk?og">https://git.io/ogatea</a><br/>
-  </tr>
-  <tr>
-    <td align=center>
-<a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogNews&from=Email-shn">网门头条</a><br/>
-    </td>
-  </tr>
-  <tr>
-    <td align=center><img src="https://cloud.githubusercontent.com/assets/11880933/15631437/70d0a74e-259d-11e6-946f-6237b4b657bd.jpg"/></td>
-  </tr>
-  <tr>
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BD%BF%E7%94%A8%E6%8C%87%E5%8D%971.jpg"/></td>
-  </tr>
-  <tr>
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
-  </tr>
+
 </table>    
